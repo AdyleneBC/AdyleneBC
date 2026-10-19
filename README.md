@@ -1,4 +1,4 @@
-# Hi there! 👋 I'm Ady! 💗
+# Hi there! 👋 I'm Ady!
 
 ### Adylene BC | IT Engineering Student | AI & ML Enthusiast
 I'm currently in my **7th semester of Information Technology Engineering**.
