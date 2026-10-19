@@ -23,6 +23,6 @@ My favorite projects will always be related to **Machine Learning and Artificial
 
 - 🌐 **Portfolio:** Coming soon!
 - 💼 **LinkedIn:** [My LinkedIn](http://www.linkedin.com/in/adylene-baylon-cuahtlapantzi-9b6a96304)
-- 📸 **Instagram:**
+- 📸 **Instagram:** [My Instagram](https://www.instagram.com/adybaylon?utm_source=ig_web_button_share_sheet&cplk=ZDNlZDc0MzIxNw==)
 - 🎀 **Pinterest:** [My Pinterest](https://pin.it/5h7mW8NYF)
 
